@@ -10,7 +10,7 @@ Tak.
 Adrianna Milewska
 Michał Wytrykowski
 
-Pozdrawiam serdecznie!
+Pozdrawiam serdecznie!.
 
 Całe te zajęcia cudowne.
 Jan Rychlica
